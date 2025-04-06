@@ -1,1 +1,0 @@
-id like to learn agriculture
